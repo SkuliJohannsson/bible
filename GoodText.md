@@ -10,7 +10,7 @@ Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami 
 * [Verið hugrakkir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Góður hermaður Krists Jesú.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Góður borgari.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
-* [Bindindissemi í öllu.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Bindindissemi í öllu.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:33)
 
 ### Varðveisla sálar
 
