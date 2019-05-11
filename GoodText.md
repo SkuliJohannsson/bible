@@ -5,12 +5,12 @@ Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami 
 
 ### Varðveisla líkama
 * [Verið algáðir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
-* Stundið réttlæti.
-* Hreinsum sjálfa oss af saurgun.
-* Verið hugrakkir.
-* Góður hermaður Krists Jesú.
-* Góður borgari.
-* Bindindissemi í öllu.
+* [Stundið réttlæti.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Hreinsum sjálfa oss af saurgun.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Verið hugrakkir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Góður hermaður Krists Jesú.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Góður borgari.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Bindindissemi í öllu.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 
 ### Varðveisla sálar
 
