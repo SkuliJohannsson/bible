@@ -1,7 +1,7 @@
 # Some Happy Texts from the Bible
 
 ## Trúarinnar góða barátta.
-Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami varðveitist alheill og vammlaus við komu Drottins vors Jesú Krists. - I. Þess. 5, 23
+Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami varðveitist alheill og vammlaus við komu Drottins vors Jesú Krists. - [I. Þess. 5, 23](https://www.biblegateway.com/passage/?version=NIV&search=Ephes
 
 ### Varðveisla líkama
 * [Verið algáðir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
