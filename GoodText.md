@@ -13,46 +13,45 @@ Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami 
 * [Bindindissemi í öllu.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:33)
 
 ### Varðveisla sálar
-
-* Íklæðist alvæpni Guðs.
-* Einbeitni.
-* Trúartraust.
-* Nægjusemi.
-* Verið brennandi í andanum.
-* Breytið ekki sem fávísir.
-* Óflekkaðar hendur, reint hjarta.
-* Þreytumst ekki að gjöra gott.
-* Samúð og lítillæti.
-* Biðjið Guð um visku.
-* Lögmál frelsisins.
-* Þolgæðis er yður þörf.
-* Geðprýði.
-* Göfuglyndi.
-* Sannleikanum trúr í kærleika.
+* [Íklæðist alvæpni Guðs.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Einbeitni.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Trúartraust.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Nægjusemi.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Verið brennandi í andanum.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Breytið ekki sem fávísir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Óflekkaðar hendur, reint hjarta.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Þreytumst ekki að gjöra gott.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Samúð og lítillæti.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Biðjið Guð um visku.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Lögmál frelsisins.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Þolgæðis er yður þörf.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Geðprýði.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Göfuglyndi.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Sannleikanum trúr í kærleika.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 
 ### Varðveisla anda.
-* Keppið eftir kærleikanum.
-* Guð er oss hæli og styrkur.
-* Trúið á Guð.
-* Trúmennska.
-* Góðvild og miskunnsemi.
-* Ljúflyndi og hógværð.
-* Þakkið Drottni.
-* Fullkominn fögnuður.
-* Gjaldið illt með góðu.
-* Óttist Guð.
-* Verið með hugarfari Krists.
-* Síauðugir í verki Drottins.
-* Umberið hver annan.
-* Náð Drottins vors Jesú.
-* Guð er kærleikur.
-* Sælir eru hógværir.
-* Sælir eru miskunnsamir.
-* Hlýðnir Drottni.
-* Drottinn er í nánd.
-* Hafið frið við alla menn.
-* Fyrirmynd góðra verka.
-* Rétt mat.
-* Samhugur og hluttekning.
-* Varist vélabrögð villunnar.
-* Vandlæti vegna húss drottins.
+* [Keppið eftir kærleikanum.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Guð er oss hæli og styrkur.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Trúið á Guð.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Trúmennska.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Góðvild og miskunnsemi.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Ljúflyndi og hógværð.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Þakkið Drottni.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Fullkominn fögnuður.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Gjaldið illt með góðu.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Óttist Guð.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Verið með hugarfari Krists.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Síauðugir í verki Drottins.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Umberið hver annan.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Náð Drottins vors Jesú.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Guð er kærleikur.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Sælir eru hógværir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Sælir eru miskunnsamir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Hlýðnir Drottni.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Drottinn er í nánd.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Hafið frið við alla menn.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Fyrirmynd góðra verka.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Rétt mat.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Samhugur og hluttekning.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Varist vélabrögð villunnar.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* [Vandlæti vegna húss drottins.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
