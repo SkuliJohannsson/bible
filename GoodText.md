@@ -4,7 +4,7 @@
 Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami varðveitist alheill og vammlaus við komu Drottins vors Jesú Krists. - [I. Þess. 5, 23](https://www.biblegateway.com/passage/?search=1+Thessalonians+5%3A23&version=NIV)
 
 ### Varðveisla líkama
-* [Verið algáðir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* Verið algáðir.[I. Þess 5,6-8](https://www.biblegateway.com/passage/?search=1+Thessalonians+5%3A6-8&version=NIV)
 * [Stundið réttlæti.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Hreinsum sjálfa oss af saurgun.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Verið hugrakkir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
