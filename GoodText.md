@@ -1,4 +1,5 @@
 # Some Happy Texts from the Bible
+From "Nýja Testamentið og Sálmarnir, 1983"
 
 ## Trúarinnar góða barátta.
 Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami varðveitist alheill og vammlaus við komu Drottins vors Jesú Krists. - [I. Þess. 5, 23](https://www.biblegateway.com/passage/?search=1+Thessalonians+5%3A23&version=NIV)
@@ -7,7 +8,7 @@ Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami 
 * Verið algáðir. - [I. Þess 5,6-8](https://www.biblegateway.com/passage/?search=1+Thessalonians+5%3A6-8&version=NIV)
 * Stundið réttlæti. - [II. Tím. 2, 22](https://www.biblegateway.com/passage/?search=2+Timothy+2%3A22&version=NIV)
 * Hreinsum sjálfa oss af saurgun. - [II. Kor. 7,1](https://www.biblegateway.com/passage/?search=2+Corinthians+7%3A1&version=NIV)
-* [Verið hugrakkir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* Verið hugrakkir. - [Fil. 1, 27-28](https://www.biblegateway.com/passage/?search=Philippians+1%3A27-28&version=NIV)
 * [Góður hermaður Krists Jesú.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Góður borgari.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Bindindissemi í öllu.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:33)
