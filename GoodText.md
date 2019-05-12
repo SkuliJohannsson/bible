@@ -1,4 +1,4 @@
-# Some Happy Texts from the Bible
+# Some [Happy Texts](https://kateschell.wordpress.com/2013/06/11/the-happy-texts/) from the Bible
 From "Nýja Testamentið og Sálmarnir, 1983"
 
 ## Trúarinnar góða barátta.
