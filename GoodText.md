@@ -5,7 +5,7 @@ Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami 
 
 ### Varðveisla líkama
 * Verið algáðir. - [I. Þess 5,6-8](https://www.biblegateway.com/passage/?search=1+Thessalonians+5%3A6-8&version=NIV)
-* [Stundið réttlæti.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* Stundið réttlæti. - [II. Tím. 2, 22](https://www.biblegateway.com/passage/?search=2+Timothy+2%3A22&version=NIV)
 * [Hreinsum sjálfa oss af saurgun.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Verið hugrakkir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Góður hermaður Krists Jesú.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
