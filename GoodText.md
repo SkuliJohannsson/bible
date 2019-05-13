@@ -5,16 +5,16 @@ From "Nýja Testamentið og Sálmarnir, 1983"
 Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami varðveitist alheill og vammlaus við komu Drottins vors Jesú Krists. - [I. Þess. 5, 23](https://www.biblegateway.com/passage/?search=1+Thessalonians+5%3A23&version=NIV)
 
 ### Varðveisla líkama
-* Verið algáðir. - [I. Þess 5,6-8](https://www.biblegateway.com/passage/?search=1+Thessalonians+5%3A6-8&version=NIV)
+* Verið algáðir. - [I. Þess. 5,6-8](https://www.biblegateway.com/passage/?search=1+Thessalonians+5%3A6-8&version=NIV)
 * Stundið réttlæti. - [II. Tím. 2, 22](https://www.biblegateway.com/passage/?search=2+Timothy+2%3A22&version=NIV)
 * Hreinsum sjálfa oss af saurgun. - [II. Kor. 7,1](https://www.biblegateway.com/passage/?search=2+Corinthians+7%3A1&version=NIV)
 * Verið hugrakkir. - [Fil. 1, 27-28](https://www.biblegateway.com/passage/?search=Philippians+1%3A27-28&version=NIV)
 * Góður hermaður Krists Jesú. - [II. Tím.2, 3](https://www.biblegateway.com/passage/?search=2+Timothy+2%3A3&version=NIV)
 * Góður borgari. - [Róm. 13,1-7](https://www.biblegateway.com/passage/?search=Romans+13%3A1-7&version=NIV)
-* Bindindissemi í öllu. - [I. Kor.9,25-27](https://www.biblegateway.com/passage/?search=1+Corinthians+9%3A25-27&version=NIV)
+* Bindindissemi í öllu. - [I. Kor. 9,25-27](https://www.biblegateway.com/passage/?search=1+Corinthians+9%3A25-27&version=NIV)
 
 ### Varðveisla sálar
-* [Íklæðist alvæpni Guðs.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* Íklæðist alvæpni Guðs. - [Ef. 6, 1-18](https://www.biblegateway.com/passage/?search=Ephesians+6%3A10-18&version=NIV)
 * [Einbeitni.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Trúartraust.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Nægjusemi.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
