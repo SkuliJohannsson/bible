@@ -15,7 +15,7 @@ Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami 
 
 ### Varðveisla sálar
 * Íklæðist alvæpni Guðs. - [Ef. 6, 1-18](https://www.biblegateway.com/passage/?search=Ephesians+6%3A10-18&version=NIV)
-* [Einbeitni.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* Einbeitni.[Fil. 3, 13-14](https://www.biblegateway.com/passage/?search=Philippians+3%3A13-14&version=NIV)
 * [Trúartraust.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Nægjusemi.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Verið brennandi í andanum.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
