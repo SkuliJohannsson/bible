@@ -15,14 +15,14 @@ Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami 
 
 ### Varðveisla sálar
 * Íklæðist alvæpni Guðs. - [Ef. 6, 1-18](https://www.biblegateway.com/passage/?search=Ephesians+6%3A10-18&version=NIV)
-* Einbeitni.[Fil. 3, 13-14](https://www.biblegateway.com/passage/?search=Philippians+3%3A13-14&version=NIV)
-* [Trúartraust.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
-* [Nægjusemi.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
-* [Verið brennandi í andanum.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
-* [Breytið ekki sem fávísir.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
-* [Óflekkaðar hendur, reint hjarta.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
-* [Þreytumst ekki að gjöra gott.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
-* [Samúð og lítillæti.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* Einbeitni. - [Fil. 3, 13-14](https://www.biblegateway.com/passage/?search=Philippians+3%3A13-14&version=NIV)
+* Trúartraust. - [Salmur 91]
+* Nægjusemi. = [I. Tím. 6, 6](https://www.biblegateway.com/passage/?search=1+Timothy+6%3A6&version=NIV)
+* Verið brennandi í andanum. - [Róm. 12, 11](https://www.biblegateway.com/passage/?search=Romans+12%3A11&version=NIV)
+* Breytið ekki sem fávísir. - [Ef. 5, 15-17](https://www.biblegateway.com/passage/?search=Ephesians+5%3A15-17&version=NIV)
+* Óflekkaðar hendur, reint hjarta. - [Salmur 24](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
+* Þreytumst ekki að gjöra gott. - [Gal. 6, 9](https://www.biblegateway.com/passage/?search=Galatians+6%3A9&version=NIV)
+* Samúð og lítillæti. - [Róm. 12, 15-16](https://www.biblegateway.com/passage/?search=Romans+12%3A15-16&version=NIV)
 * [Biðjið Guð um visku.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Lögmál frelsisins.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)
 * [Þolgæðis er yður þörf.](https://www.biblegateway.com/passage/?version=NIV&search=Ephesians%204:32)

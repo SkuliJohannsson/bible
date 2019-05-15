@@ -15,3 +15,5 @@ git push -u origin master
 
 git remote add origin https://github.com/SkuliJohannsson/bible.git
 git push -u origin master
+
+https://github.com/SkuliJohannsson/bible/blob/master/GoodText.md
