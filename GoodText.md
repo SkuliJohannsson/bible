@@ -55,4 +55,4 @@ Sjálfur friðarins Guð helgi yður algjörlega og andi yðar, sál og líkami 
 * [Rétt mat.](https://www.biblegateway.com/passage/?search=Philippians+1%3A9-10&version=NIV)
 * [Samhugur og hluttekning.](https://www.biblegateway.com/passage/?search=1+Peter+3%3A8-9&version=NIV)
 * [Varist vélabrögð villunnar.](https://www.biblegateway.com/passage/?search=Ephesians+4%3A14-15&version=NIV)
-* [Vandlæti vegna húss drottins..](h)
+* [Vandlæti vegna húss drottins.](https://www.biblegateway.com/passage/?search=John+2%3A13-17&version=NIV)
